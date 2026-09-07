@@ -1,4 +1,4 @@
-<img width="735" height="736" alt="download (8)" src="https://github.com/user-attachments/assets/aca3aa2b-9ea3-41a6-b398-e944126ddb0c" />
+<img width="735" height="413" alt="download (9)" src="https://github.com/user-attachments/assets/ad0dbc91-0805-4e14-9727-1c8d1e944430" />
 
 
  :) cybersecurity // aerospace // physics // mathematics
