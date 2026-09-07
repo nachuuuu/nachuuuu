@@ -3,7 +3,7 @@
  :) cybersecurity // aerospace // physics // mathematics
 <!--
 **nachuuuu/nachuuuu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+[linkedin](https://www.linkedin.com/in/connect-nachiketa/) [x])(https://x.com/x_nachiketa) [email](connect.nachiketaap@gmail.com)
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
